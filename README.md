@@ -1,0 +1,2 @@
+# sanonsnn
+A digital currency  
